@@ -1,6 +1,6 @@
 <h5 align="center">
-<img width="600" height="300" alt="image" src="https://github.com/user-attachments/assets/6c2810f1-20ad-4213-a575-674800e4e3c3" />
-  
+<img width="900" height="300" alt="image" src="https://github.com/user-attachments/assets/1eee6668-29ef-4e93-9c5d-a49bf3ccc4d1" />
+
 <img width="1000" height="15" alt="image" src="https://github.com/user-attachments/assets/4e4a2173-75f8-4c1b-837a-cc9e37f4aaf2" />
 
 <h5 align="center">
@@ -22,14 +22,12 @@ Despite how I look, I'm very affectionate and caring once you get to know me.
 
 𝐃𝐍𝐈: 
 
-Below 15yo.
-
-Weird Fandoms.
+Below 16yo.
 
 Proshippers & related.
 
 Basic DNI Criteria.
 
-. . . Just don't be weird and have common sense, I guess.
+. . . Just don't be weird and have common sense, we won't have any issue that way.
 
 <img width="1000" height="15" alt="image" src="https://github.com/user-attachments/assets/4e4a2173-75f8-4c1b-837a-cc9e37f4aaf2" />
